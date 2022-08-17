@@ -1,0 +1,5 @@
+- Oi, meu nome é Lara
+- Eu gosto de desenhar
+- Minha cor favorita é preto
+- Adoro comer 
+- Tenho instagram, então me segue lá @larakaminami 
